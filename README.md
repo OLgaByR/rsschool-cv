@@ -1,1 +1,1 @@
-# rsschool-cv
+https://OLgaByR.github.io/rsschool-cv/cv
